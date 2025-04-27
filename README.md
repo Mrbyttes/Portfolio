@@ -1,2 +1,2 @@
 # Projet
-Just for personal train 
+Just for self présentation. 
